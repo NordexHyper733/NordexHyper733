@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NordexHyper733
+- 👀 I’m interested in Commands
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: add me on the discord: nordexhyper.
+- 😄 Pronouns: He/Him
